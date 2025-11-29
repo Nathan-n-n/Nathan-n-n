@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Nathan-n-n
 - 👀 I’m interested in creating my own AI
-- 🌱 I’m currently learning in school
+- 🌱 I’m currently learning in collage
 - 💞️ I’m looking to collaborate on creating an AI
 - 📫 How to reach me by mail or whatsapp
 - 😄 Pronouns: ...
